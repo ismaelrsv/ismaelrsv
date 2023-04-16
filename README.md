@@ -1,4 +1,4 @@
-###Jesús Ismael Rivas Serrano
+###Jesús Ismael Rivas
 
 ######Estudiante de quinto año de Ingeniería en Sistemas en la universidad Tecnológica de El Salvador.
 
